@@ -6,23 +6,32 @@ GWS Tele Services is a premier internet service provider committed to delivering
 
 
 •GWS Tele Services: Premier internet service provider
+
 •High-speed and reliable connectivity
+
 •Tailored plans for residential and business customers
+
 •Cutting-edge technology and infrastructure
+
 •Round-the-clock customer support
+
 •Blazing-fast speeds for streaming, gaming, and business operations
 
+
 Internet Broadband Services
+
 Green Web is providing an ingenious fixed wireless broadband service specially in all Bharat. A company known for its reliability and high speed internet service. dedicatedly working to deliver joy, happiness and high speed internet service
 
 
 
 IP TV
+
 Green Web Start providing IP TV Services to our valuable customer, Now customers can enjoy their favourite programmes in stereophonic sound and crystal clear images.
 
 
 
 Internet Leased Line
+
 We provide Internet Leased Line Services over fiber, allowing for uncontended, symmetrical bandwidth and full-duplex traffic. We are one of the Best Internet Leased Line Service provider in all Bharat.
 
  
